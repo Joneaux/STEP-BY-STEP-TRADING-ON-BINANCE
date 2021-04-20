@@ -1,5 +1,5 @@
 # STEP-BY-STEP-TRADING-ON-BINANCE
-<h2><strong>Making six figures with crypto-trading on Binance</strong></h2>
+<h2><strong>You can make six figures with crypto-trading, Read here;</strong></h2>
 <p>
   Binance is a crypto trading platform that offers one of the most competitive rates and features around. Whether you are a newbie or an expert in crypto trading, this is probably the cheapest and easiest to trade cryptocurrencies despite the CBN restrictions in Nigeria.
   There are many coins supported by Binance like bitcoin, ethereum, litecoin, tron, nano, ripple amongst otheres. Bitcoin is regarded as the most successful coin with over 1000% increase in recent times while other coins on the platform are known as altcoins(more like an alternative)   
